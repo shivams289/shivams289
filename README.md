@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Deep learning and NLP applications in finance
 - 💞️ I’m looking to collaborate on NLP PROJECTS
 - 📫 How to reach me linkedin
+- I'm Fun almost always surely
 
 <!---
 shivams289/shivams289 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
