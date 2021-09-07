@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @shivams289
 - 👀 I’m interested in Quant Finance/Research
 - 🌱 I’m currently learning Deep learning and NLP applications in finance
-- 💞️ I’m looking to collaborate on NLP PROJECTS
 - 📫 How to reach me linkedin
 - I'm Fun almost always surely
 
