@@ -1,6 +1,9 @@
-- 👋 Hi, I’m @shivams289
+- 👋 Hi, I’m Shivam
 - 👀 I’m interested in Quant Finance/Research
-- 🌱 I’m currently learning Deep learning and NLP applications in finance
+- 🌱 Currently seeking Quant Research roles
+- I'm into fitness/nutrition, If you need help with a little extra pound of weight, please reach out
+- I'm like space time controversies(Reach out if you think there's someone sitting inside event horizon of black holes!!)
+- I love crazy ideas
 - 📫 How to reach me linkedin
 - I'm Fun almost always surely
 
