@@ -2,7 +2,7 @@
 - 👀 I’m interested in Quant Finance/Research
 - 🌱 Currently seeking Quant Research roles
 - I'm into fitness/nutrition, If you need help with a little extra pound of weight, please reach out
-- I like space time controversies(Reach out if you think there's someone sitting inside event horizon of black holes!!)
+- I like space time controversies
 - I love crazy ideas
 - I'm Fun almost always surely
 
