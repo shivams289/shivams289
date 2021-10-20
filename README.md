@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Shivam
-- 👀 I’m interested in Quantitative Finance/Research
 - 🌱 Currently seeking Full time roles
 - I'm into fitness/nutrition, If you need help with a little extra pound of weight, please reach out
 - I like space time controversies
