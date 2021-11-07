@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Shivam
 - 🌱 Currently seeking Full time roles
-- I'm into fitness/nutrition, If you need help with a little extra pound of weight, please reach out
+- I'm into fitness/nutrition
 - I like space time controversies
 - I love crazy ideas
 
