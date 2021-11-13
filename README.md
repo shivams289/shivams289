@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shivam
-- 🌱 Currently seeking Full time roles
+- 🌱 Seeking Excitements and Adventures
 - I'm into fitness/nutrition
 - I like space time controversies
 - I love crazy ideas
