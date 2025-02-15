@@ -1,8 +1,4 @@
 - 👋 Hi, I’m Shivam
-- 🌱 Seeking Excitements and Adventures
-- into fitness/nutrition
-- likes bending of space time
-- loves crazy ideas
 
 
 <!---
